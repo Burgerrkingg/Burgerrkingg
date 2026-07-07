@@ -10,7 +10,9 @@ Hello! Im Rozushi / Burger
 Mostly JJK area, sth, countryhumans, solarballs.
 
 
-Im from : 🇹🇷 Im a funny person 🎭
+Im from : 🇹🇷
+
+Im a funny person 🎭
 
 
 I yap so much mb 😭 
